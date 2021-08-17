@@ -1,2 +1,8 @@
 # hello-world-2
-This is a "short description" to my "Hello World 2" repo
+
+Hi folkz!
+
+This is me, so it seems it's not you and neither you all!! 🦖
+
+Enjoy my friendship!
+Dudoz
